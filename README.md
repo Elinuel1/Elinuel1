@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Adzimah Emmanuel
+# 👋 Hi, I'm Emmanuel ELi Adzimah
 
 ## 💻 Solutions Architect | ☁️ AWS Certified | 🛡️ Cybersecurity Enthusiast | 💡 NGO Advocate
 
